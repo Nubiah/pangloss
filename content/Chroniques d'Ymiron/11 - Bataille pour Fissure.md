@@ -1,0 +1,85 @@
+---
+date: 2023-09-30
+title: 11 - Bataille pour Fissure
+draft: false
+tags:
+---
+- - -
+## [[Ytalien]] & Ymiron, les nettoyeurs
+
+Suite à la perte de l’un des nôtres et de sa monture, nous devions faire des pauses régulières pour permettre à nos montures de se reposer. Nous n’étions plus qu’à quelques heures d’enfin atteindre [[Fissure]]. [[Yppocampe]] était dans un sale état et sans soin nous risquions de le perdre définitivement.
+
+L’attente était longue tant j’avais toujours voulu mettre les pieds dans cette ville. La grande Fissure, à la pointe de la technologie était pour moi un réel rêve d’accomplissement. Lors de notre vol, nous avons passé de gigantesques montagnes acérées, mais également des sortes de marais… de souffre ?
+
+En milieu de journée, les [[Quadraniptère|quadraniptères]] commencèrent à survoler une sorte de grande masse rocheuse, puis sur le signe de l’un d’eux, piquèrent en direction d’une faille plus grande que les autres.
+
+Le sentiment de vol était grisant, et la vitesse que nous atteignons en piquée rendait l’expérience encore plus mémorable. Au fur et à mesure que nous nous rapprochions, des alcôves se dessinaient dans la roche, entre les deux pans de la montagne. Des ponts reliaient les alcôves entre elle… et la guerre avait lieu sur l’un d’eux ! Un front [[Tridite]] tentait de prendre une zone intermédiaire dans la faille tenue par des [[Carrugos]] tout en armure. Après avoir discuter avec mon pilote, le quadraniptère transportant [[Yasha]] et Yppocampe atterrit à l’abri derrière les lignes Carrugos pour permettre à Yppocampe d’être soigné. Me concernant, je choisis de me poser sur la roche intermédiaire pour donner main forte au front Carrugos. Ytalien quant à lui…tenta l’impossible et sauta de sa monture le pied en avant. Comble de la chance, il réussit à donner un coup à un Tridite en tête de front qui surpris par le coup bascula dans le vide en hurlant. Ytalien fit alors face au suivant. Pendant ce temps, je me frayais un chemin parmi les miens pour arriver au front et prêter mains fortes à mon frère de bataille. Les Carrugos me laissait passer, comme à la fois surpris et admiratif de ma stature et apparence. Pendant que j’essayais d’atteindre le front, j’avais remarqué un autre pont qui était en bataille. A cette époque je portais le cafetan que m’avais offert les [[Touarrugos]], et ma taille s’imposait d’elle même. Mais je pense que le clou du spectacle était ma chère [[Trancheciel]], brillant d’un saphir éclatant. J’arrivais au front pour soutenir Ytalien qui avait déjà réussi à envoyer par dessus le pont plusieurs adversaires, surpris par son agilité et sa force.
+
+Je commençais alors à trancher dans le vif du sujet en donnant des coups d’épée redoutables qui surprenaient jusqu’au Tridite les plus solides. J’entendais derrière moi Yasha encourager les bataillons de Carrugos pour leur faire redoubler d’intensité. Profitant d’averse de roche bien placées sur le pont par les nôtres, Ytalien et moi avions chargé plusieurs fois pour avancer la ligne de front, au grand malheur de nos opposants. Petit à petit, nous approchions de l’alcôve tenue par les Tridites. Les rochers nous tombait dessus avec beaucoup de violence, mais mon pavois Tridite avait le mérite d’être redoutable lorsqu’il s’agit d’arrêter les projectiles. Par moment, des flèches sifflaient au dessus de nos têtes, signes manifestes que Yasha et Yppocampe était à l’œuvre pour nous couvrir. Ytalien tenta à plusieurs reprises de faire du bluff pour démoraliser les Tridites, mais ils tinrent bon. Avec beaucoup d’effort, nous étions quasiment le pied sur la roche de l’alcôve. En réponse à son bluff, Ytalien pris un rocher en pleine face.
+
+Soudain, consécutivement à une flèche qui siffla au dessus de nos têtes, les Tridites hurlèrent alors “Retraite ! Ils ont eut [[Cohort Dayür]] ! Retraite dans les mines !”. L’intégralité des barbares fuirent vers les mines… tous sauf 4 qui tentèrent de nous retenir sur le pont. Les pauvres damnés se sachant morts, ils donnèrent tous ce qu’ils avaient pour essayer de tuer Ytalien qui osait souiller la lance de leur [[Prim'Darin]]. Mais malgré toute leur haine, la défense d’Ytalien était trop robuste. L’un d’eux se jeta sur lui pour le faire basculer dans le vide, et il s’en fallut de peu pour que les deux chutent dans le vide. Je choisis de faire un passage et éliminait deux des quatre Tridites, laissant les Carrugos charger en direction des fuyards. Ytalien lance la charge mais s’arrête quelques mètres plus loin, reprenant son souffle. La fatigue se fait sentir. J’étais resté sur le pont en ayant rengainé Trancheciel. Un Quadraniptère était venu me chercher pour tenter une opération coup de poing en détruisant un pont sur lequel environ 150 Tridites arrivaient en renfort pour reprendre les forges. Après avoir atterrit, je vis la menace arrivée à pleine vitesse. Les Tridites voulaient nous massacrer et je pouvais le lire dans leurs yeux. Pesamment, lentement, je dégainai Trancheciel. Je pris mon inspiration, et frappa de toutes mes forces les attaches du pont devant moi. Elle n’était pas de taille à lutter contre le tranchant de mon arme et le câble se raidit d’un seul coup sous le poids du pont. Celui-ci bascula progressivement, puis versa d’un seul coup sur le côté. Le mouvement anormal et le poids supplémentaire eut raison des autres attaches qui s’arrachèrent de la roche avec un vacarme dantesque. Le pont bascula dans le vide, entrainant avec lui presque 150 Tridites qui hurlèrent en tombant dans le vide. Certains réussir à remonter à la base du pont, mais la plupart était mort.
+
+Je suis ramené aux forges. Les Carrugos clamaient nos noms et hurlaient de joie. Nous avions repris les forges, le cœur de Fissure.
+## Reprise des forges
+
+Un très vieux Carrugos était venu à notre rencontre, un dénommé [[Yacébo]]. Il nous avait soigné avec un talent fantastique pour le soin, c’était un virtuose de son art.
+
+Nous avions été conviés à une réunion d’état major pour décidé de la suite des combats. Les Tridites avaient peut être perdu cette bataille mais ils étaient encore très nombreux dans la ville, environ 300 soldats. J’avais appris alors que pendant la bataille plus tôt, Yppocampe avait réussi à couper la tête dirigeante des Tridites grâce à sa précision légendaire.
+
+Le conseil de la cité nous avais applaudis à notre entrée dans la pièce. Ils avaient fait les louanges de nos actions en combat et nous avait remercié pour notre support. L’intendant principal de la cité s’était tenu devant nous, un certain [[Yancovlar]]. Nous avions appris que les Tridites avaient pris Fissure par surprise, et que malgré la vaillance des gardiens de la ville, le surnombre des barbares avaient eut progressivement eut raison de leur défense.
+
+Nous avions réfléchis à une solution pour sauver les centaines d’habitants encore piégés par les Tridites dans une alcôve plus basse, servant principalement de ferme à caoutchouc.
+
+Ils avaient été très intéressé par l’idée d’arme apportée par Yppocampe, la [[Baliste]]. Ils travailleraient sur le sujet au plus vite. Ils avaient offert à Ytalien un bouclier plus solide que le sien qui était une simple rondache. Ils nous proposèrent ensuite de nous donner une armure complète lourde de Fissure. Ytalien déclina l’offre, mais je ne pu en faire autant. Cette armure était la tenue la plus belle que j’avais vu jusqu’à maintenant. Je voyais déjà la terreur des Tridites quand ils me verraient arriver avec cette armure et Trancheciel sur l’épaule. Le style unique de l’armure rendait presque le mannequin sur lequel était entreposé l’armure vivant. J’avais discuter avec l’un des forgerons pour améliorer un peu la chose, en demandant un bouclier au moins aussi solide que celui Tridite, mais de style Carrugos. J’avais également demandé une armure avec des accentuations bleutées, pour accompagner Trancheciel. Mais il fallait du temps pour tout ça, et nos services étaient nécessaires ailleurs. Ytalien par contre avait vu sa lance équipée d’une poignée contenant de l’alliage du berserker, même si au fond, personne ne maniait cette rage mieux que moi.
+## Les fermes de caoutchouc
+
+Grâce aux Quadraniptères, nous avions réussi à atteindre la dernière alcôve. Les villageois étaient déprimés, affamés, et n’attendaient plus rien de la vie. La vue des provisions que nous avions apportés leur avait permis de reprendre des forces. Yasha avait tenté de gérer la distribution mais elle s’était fait dépassé par la précipitation des habitants à manger. Tout ici était bricolé, les défenses jusqu’aux armes.
+
+Yppocampe était resté dans les alcôves principales pour développer une nouvelle solution avec Yacébo. Une sorte de gaz toxique pour “nettoyer” les alcôves encore aux mains des Tridites.
+
+Il y a environ 200 à 250 habitants sur place. Les Quadraniptères avaient fait des aller retour pour rapporter les ressources et les vivre.
+
+Pendant ce temps j’avais observer l’alcôve en face de nous, aux mains des Tridites. Un pont deux fois plus grand que celui sur lequel nous nous étions battu reliaient les deux alcôves. De leur coté, 3 maisons leurs servaient de réserve de nourriture.
+
+Rien ne s’était passé pendant des heures, et la nuit était tombée. Yasha s’affairait à soigner un maximum de Carrugos. Je montais la garde avec d’autres Carrugos au pied du pont.
+
+Soudain, j’avais vu une torche se détacher du fond de leur alcôve. Deux Tridites marchaient sur le pont nous reliant, et portaient un drapeau blanc. Ils s’arrêtèrent au centre du pont.
+
+J’avais prévenu Ytalien, et nous nous étions préparé à aller rencontrer les deux Tridites.
+## Rencontre au milieu du vide
+
+Les deux Tridites étaient un peu différent de ceux que nous massacrions dans leurs bataillons. L’un d’eux avait une belle armure de cuir ouvragée, une écharpe et une cape bleue électrique. Deux cestes se trouvait à sa ceinture. L’autre était couvert d’une armure à pointe, elle même couverte de sang séché. Il portait avec lui un fléau d’arme. Le signe qu’ils arboraient sur leur front nous renseignait sur leur grade, c’était des aspirants officiers, mais rien de plus.
+
+Les Tridites souhaitaient nous donner un passage sûr pour évacuer les habitants, si nous leur laissions ensuite la zone de ferme. De toutes évidences, ils avaient besoin de nourriture pour leurs troupes. J’avais laissé Ytalien prendre la parole, sûrement à tort. Il avait commencé à les provoquer.
+
+Le Tridite me faisant face n’avait pas bougé, mais son voisin était nettement plus nerveux. La colère lui avait fait chargé Ytalien qui avait fait preuve d’agilité et avait éviter toutes les attaques du Tridite. La riposte ne se fit pas attendre et Ytalien avait décapité son opposant. Pour provoquer davantage, il lança la tête à l’autre Tridite, qui l’attrapa au vol. Le nom du mort était [[Dragoslave]].
+
+Ytalien ne s’arrêta pas sur une si bonne lancée et continua en révélant que la ferme derrière nous ne contenait pas de nourriture mais seulement du caoutchouc. Il avait également partager nos avancées dans l’ouest. L’information était capitale et j’avais tourné la tête vers lui pour voir s’il s’agissait d’un stratagème… ce n’était pas le cas. L’autre Tridite avait souris en entendant ça, et avait fait mine de repartir vers son camps. Ne souhaitant pas que les informations puissent filtrer chez les Tridites, j’avais fait une fente en avant pour trancher en deux le Tridite. J’avais récupérer sa belle écharpe & cape pour pouvoir la porter moi même, se mariant bien avec mon armure et Trancheciel.
+
+La mort des deux émissaires avait provoquer des cris dans leur camp, sans grande surprise. J’avais engueuler Ytalien sur le pont pour lui faire comprendre son erreur, mais ce n’était pas le moment de tergiverser. Une pluie de rocher s’abattait sur nous. Je levais mon bouclier mais… l’armure de Fissure était tout bonnement fantastique. Les rochers glissaient dessus comme si rien ne pouvait l’endommager. Le bouclier arrêtait les autres. Ytalien par contre accusa le coup avec grande douleur. Nous avions essayer de reculer avec Ytalien dans mon dos mais trop de cailloux tombait pour que je puisse tous les absorber. Il était au bord de la mort, mais il avait réussi à franchir les derniers mètres qui le séparait de nos barricades et sauta derrière. Je l’y avait rejoins pour voir Yasha qui tentait de le stabiliser mais c’était au dessus de ses compétences. Ytalien tomba dans le coma. J’en avait profiter pour regarder l’écharpe avant de l’équiper. Il était écrit “[[Cohort Tiberion]]” dessus.
+
+Voyant leur bombardement inefficace, les Tridites chargèrent. S’ils nous atteignaient, nous étions tous morts. La seule solution consistait à couper le pont à nouveau, mais en un temps record et avec un grand risque de chute dans le vide.
+
+On m’attacha à la ceinture au bout d’une corde solide, et je sautais sur le pont devant les Tridites. Certains semblèrent ralentir en se posant la question de ma présence face à eux, et surtout pourquoi j’étais attaché à une corde. Comme la première fois, j’avais pris une grande inspiration et j’avais frappé de toutes mes forces les attaches du pont. C’est tout un pan de roche que j’avais détruit cette fois ci. Les câbles d’acier étaient parti avec une vitesse inouïe, et le pont avait céder tout aussi vite. J’étais tombé dans le vide en même temps qu’environ 100 Tridites.
+
+Heureusement la corde qu’on m’avait attachée avait tenu bon et les Carrugos avaient pu me hisser dans l’alcôve. Les Tridites survivant avaient emprunté l’autre pont pour rejoindre la dernière alcôve qu’ils possédaient. Un tunnel effondré reliait la nôtre à la leur. Quelques minutes après, des coups de pioche commencèrent à frapper les rochers dans le tunnel.
+## Une arme de destruction massive
+
+Yasha avait fait envoyer un message au reste des Carrugos pour obtenir de l’aide, sans quoi nous étions morts. Nous avions commencé à faire une barricade derrière le tunnel pour tenter de tenir le cas échéant.
+
+Un message nous informa en retour que les Carrugos avaient commencé à miner de leur côté pour forcer un front plus “égalitaire”. De plus, une arme chimique allait être testée prochainement si le temps nous le permettait.
+
+Ytalien avait repris connaissance environ 12 heures plus tard, en pleine après-midi. Il avait sur le visage une expression terrifiée, sans doute lié à sa proximité avec la mort, j’avais du avoir le même quand j’avais failli mourir à [[Citadelle]] il y a longtemps.
+
+Soudain, les coups de pioche avaient cessés, et nous avions entendu les Tridites hurler à l’agonie. Puis, plus rien.
+
+J’avais appris plus tard par Yppocampe ce qu’il c’était passé. La bombe chimique avait eut finalement un prototype. Mais il fallait la poser à proximité et la détonner sur place pour pouvoir qu’elle fonctionne. Yppocampe s’était porter volontaire. Avec un Quadraniptère et son pilote, ils avaient réussi à poser la bombe sur un chariot dans l’alcôve et l’avait amorcer. Ils avaient réussi à s’enfuir juste à temps pour voir le gaz se rependre dans toute l’alcôve. Un nuage blanc très épais avait alors occupé tout l’espace, ne laissant aucune issue aux Tridites. Une fois atteint par le nuage, la peau des victimes s’était cloquée, et les contaminés avaient commencer à vomir du sang, puis mourir. De nombreux Tridites avaient préférés sauter dans le vide plutôt que de mourir de la sorte. D’autres s’étaient même eux même tranché la gorge. Quelques minutes après, la vie avait presque quitter l’alcôve.
+## Départ pour Citadelle
+
+Nous avions été rapatrié dans les forges pour passer la nuit. Au matin, nous avions vu une trentaine de Tridite survivants se tenir la main pour sauter tous ensemble dans le vide. C’était là le reste de leur garnison. La ville était à nouveau Carrugos !
+
+Les forgerons de Fissure n’avaient pas chaumé et de nombreuses avancées avaient été faites. Une baliste était en cours de fabrication, mais aucun prototype n’était accessible. Par contre, un nouveau type d’arme avait été miniaturisant le concept de la baliste. Les ingénieurs présentèrent à Yasha et Yppocampe leur nouvelle arme : l’arbalète. Bien plus puissante que l’arc, mais moins versatile, elle était issue de tout le savoir faire de Fissure.
+
+Les forgerons ne m’avaient pas oubliés : ils m’apportèrent une superbe armure d’un gris sombre, avec des accentuations bleutées. Ils avaient également réussi à fabriquer un bouclier au moins aussi solide que celui Tridite, en reprenant le design de l’armure. Il était même plus léger que celui que je portais jusqu’à maintenant ! J’équipais l’ensemble en ayant hâte de voir le visage terrifié de mes adversaires sur le champs de bataille. J’étais comme… une sorte de scarabée bleuté. Ytalien provoquait la rage de nos adversaires, alors que j’instillerais en eux la terreur.
+
+Après avoir remercier les Carrugos de Fissure, nous remontions sur les Quadraniptères pour retourner d’où nous venions : Citadelle !
