@@ -1,18 +1,6 @@
-# Quartz v4
+Bienvenus dans le monde végétal de Pangloss (un TTRPG créé intégralement par Aurèle Alloula).
+Ce site est la transposition numérique du carnet de note d'Ymiron, un [[Carrugos]] vivant sur Pangloss, avec ses notes et ses aventures, ses questionnements et son raisonnement.
 
-> “[One] who works with the door open gets all kinds of interruptions, but [they] also occasionally gets clues as to what the world is and what might be important.” — Richard Hamming
+S'y trouve également le journal de bord de Kyo Namurato, un [[Rondchild]] vivant ses propres aventures...
 
-Quartz is a set of tools that helps you publish your [digital garden](https://jzhao.xyz/posts/networked-thought) and notes as a website for free.
-Quartz v4 features a from-the-ground rewrite focusing on end-user extensibility and ease-of-use.
-
-🔗 Read the documentation and get started: https://quartz.jzhao.xyz/
-
-[Join the Discord Community](https://discord.gg/cRFFHYye7t)
-
-## Sponsors
-
-<p align="center">
-  <a href="https://github.com/sponsors/jackyzha0">
-    <img src="https://cdn.jsdelivr.net/gh/jackyzha0/jackyzha0/sponsorkit/sponsors.svg" />
-  </a>
-</p>
+**Bonne lecture !**
